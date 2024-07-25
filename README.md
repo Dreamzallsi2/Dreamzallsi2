@@ -1,5 +1,5 @@
 - 👋 Hi, I’m B2M8NUS
-- 👀 I’m interested in suicide.
+- 👀 I’m interest suicide.
 - 🌱 I’m currently learning how to die.
 - 📫 You can't reach me cuz I've got barrier surrounded.
 
