@@ -1,6 +1,4 @@
-- 👋 Hi, I’m B2M8NUS
-- 👀 I’m interest suicide.
-- 🌱 I’m currently learning how to die.
+- 👋 Hi, I’m Sarawut Chetsing.
 - 📫 You can't reach me cuz I've got barrier surrounded.
 
 <!---
